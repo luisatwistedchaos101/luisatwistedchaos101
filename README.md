@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Sega
 - 📫 How to reach me https://bio.link/twistedchaos101 
 - 😄 Pronouns: she/her
-- ⚡ Fun facts: I'm neurodivergen
+- ⚡ Fun facts: I'm neurodivergent
 - I like to draw
 - I speak portuguese, a bit of spanish and english.
   
