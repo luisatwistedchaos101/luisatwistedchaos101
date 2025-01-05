@@ -2,7 +2,7 @@
 - 👀 I’m interested in neurodiversity, games(specially sonic), animes, and series.
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on Sega
-- 📫 How to reach me https://bio.link/twistedchaos101 
+- 📫 How to reach me 
 - 😄 Pronouns: she/her
 - ⚡ Fun facts: I'm neurodivergent
 - I like to draw
